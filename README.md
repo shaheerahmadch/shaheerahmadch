@@ -9,7 +9,7 @@ This is Shaheer Ahmad. As a fan and enabler of Microsoft Technologies, my goals 
 
 - 📫 How to reach me: **shaheer.ashraf@live.com**
 
-- ⚡ What I like to do: **I like so much learn and spread my knowledge**
+- ⚡ What I like to do: **I like to learn and spread my knowledge**
 
 
   

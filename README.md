@@ -1,4 +1,5 @@
-![image](https://github.com/shaheerahmadch/shaheerahmadch/assets/114233717/8b8a054d-faf5-4e96-b67f-1645cc81fc48)
+![image](https://github.com/user-attachments/assets/79b7240f-4200-473e-bcd4-b03b848a4120)
+
 
 
 ### Hi there 👋
